@@ -1,5 +1,5 @@
 # Dark Ages Recaps
-
+![][image-1]
 ## The Hunt
 AD 998, December
 
@@ -57,3 +57,5 @@ Though not all made sense, and was overall somewhat damaging to their lucidity, 
 
 
  
+
+[image-1]:	tapestry.jpeg

@@ -21,4 +21,39 @@ The tracks eventually took the three to a strange village inhabited by small goa
 
 They then retrieved the infant, took their wolf pelts, and returned to Totburh. They were held in great esteem by the folk of Totburh. Oswyn granted each a horse and a blade and Saga took the infant to raise herself.
 
+## The Doom That Came to Wessex
+AD 999, March
+
+The spring of the year 999 began well in Totburh. Hothere,
+the almoner from St. Swithun’s, was making one of his frequent visits. He and three other monks come to Totburh periodically to speak with the priests and
+anyone who might need their guidance. 
+
+That night, Saga, Cuthbert, and Wulfstan caught sight of a pyre lit on a nearby hill - a Viking ship was attacking. They sounded the alarm, with all the churches of the burh ringing their bells.
+
+Cuthbert and Wulfstan did battle atop the walls, stopping the Vikings from getting into the burh. Saga tended to the many injured - including treating some of the wounded Vikings, for they could be ransomed back to their settlement.
+
+Oswyn dispatched the bulk of the hearthweru to pursue the Vikings. However, Hothere brought word that the monastery was under attack as well. Cuthbert, Wulfstan, and Saga accompanied Hothere back to the monastery.  
+
+Dawn was still some two hours away when they reached the monastery - parts of it on fire and there was an overall red glow. They saw Vikings and monks doing bizarre acts - and with time, they realized each of the afflicted was acting out one of the seven deadly sins. Saga stopped a monk from raping a slave woman. They saw other Vikings and monks eating or lounging together - and others fighting. One monk, Jurmin, approached them filled with wrath. 
+
+They encountered a merchant, Mousoulios, who claimed to be the the greatest trader ever. He showed them a cask he had brought the monks. It had written on it in Greek (he translated for them) - “I am called Phêth. I make
+men consumptive and cause hemorrhagia”. 
+
+The abbott, Abbot Grimcytel was in his cell, staring at the walls. The
+phrase, “Relinquo totus spes” written in blood covered the walls,
+over and over. “Abandon all hope.” Grimcytel, upon being prodded, kept repeating “Tuatame
+ex infernis” meaning, “liberate me from the fire.” He then murmured they should speak with Hygerd.
+
+As the sun rose, they returned to Totburh and at midday consulted with Hygerd, forever dwelling in his cell at Halfdene’s church. When told of Phêth he said:
+> > The monastery burns! It burns in the sweet smell of Pan’s pissings. And lo, I am King Solomon, come to render unto thee. I am the master of the air, the earth, the flame, and the wave.
+> The red glow is his coming. The twenty-seventh of Lord Sabaoth.
+> Bathed in the pressing of uva Phêth has come. If one exorcise me
+> in wine, sweet-smelling and unmixed by the eleventh aeon, and
+> say: ‘I exorcise thee by the eleventh aeon to stop, I demand, Phêth,’
+> then give it to the patient to drink, and I at once retreat. Bathed
+> in the blood of many, he lurks below.
+
+Though not all made sense, and was overall somewhat damaging to their lucidity, they understood enough to acquire unmixed wine from Oswyn. They returned to the monastery at dusk and were able to use the incantation and unmixed wine to exorcise the demon Phêth. However, there was much damage. Many monks were dead, much of the monastery was burned, and the Vikings were still inclined to raid. At the very least, the Vikings were persuaded to seek easier prey.
+
+
  

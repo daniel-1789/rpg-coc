@@ -1,8 +1,8 @@
 Cthulhu 1918
 
-##Reanimation
-###Locale: Martin's Beach Hotel, October 1918
-###Investigator:
+## Reanimation
+### Locale: Martin's Beach Hotel, October 1918
+### Investigator:
 - Mickey Davis, Private Investigator
 - Dina Levitt, Investigative Reporter
 - Thaddeus McHenry, Book Dealer
@@ -21,9 +21,9 @@ With all the deaths the police made only the most cursory of investigations. Tha
 
 
 
-##The Darkness Beneath the Hill
-###Locale: Providence, Rhode Island, November 1918
-###Investigators:
+## The Darkness Beneath the Hill
+### Locale: Providence, Rhode Island, November 1918
+### Investigators:
 - Mickey Davis, Private Investigator
 - Dina Levitt, Investigative Reporter
 - Thaddeus McHenry, Book Dealer

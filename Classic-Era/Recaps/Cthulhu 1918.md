@@ -36,3 +36,45 @@ While they were supposed to meet with him the next morning, they discovered he h
 
 While down there they learned the slavers and enslaved had been ambushed by serpent-men that had been sleeping for eons but had awoken. They captured the humans and used them as slaves and breeding experiments. At a temple to Yith Levitt found herself in connection to an ancient god of the serpent-men. Finally they found one of those serpent-men, with an imprisoned (and near insane) Josh, along with two infants of the degenerate descendants. With clubs and firearms they slew the vile serpent-man and made use of a mystical gateway that took them outside Providence before more of the overseers could catch them - or awaken more serpent-men.
 
+
+
+## The Great Molasses Flood 
+### Locale: Boston, Massachusetts, January 1919
+### Investigators:
+- Mickey Davis, Private Investigator
+- Dina Levitt, Investigative Reporter
+- Thaddeus McHenry, Book Dealer
+### Supporting Characters:
+- Martin Clougherty - Owner of Pen and Pencil bar, hires investigators
+- Marco Costa - Deceased, missing anarchists, died after an incorrect binding of a Formless Spawn from Liber Ivonis
+- Gavino Costa - Marco's older brother 
+- Rev Vittorio Gregori, Pastor of the Sacred Heart
+- Rev Paolo Pereguini - Young priest at the Sacred Heart, closet anarchist who stole Liber Ivonis for anarchists
+- Dmitri Ivanov - anarchist "leader"
+- Claudio Pereguini - Brother of Paolo, anarchist
+- Tomasino Lepore - Anarchist
+
+
+### Capsule Summary
+The investigators get caught in the Great Molasses Flood while looking for a missing anarchist. 
+
+They learned he had miscast a binding of a Formless Spawn which killed him and hid in the Molasses Tank. When the tank ruptured it explored the city. 
+
+The tome was stolen from the Church of the Sacred Heart. Working their way past protesters they learned a young anarchist priest had assisted in the theft. 
+
+At the church of the Sacred Heart they battled both anarchists and a Formless Spawn. 
+
+In the battle Mickey and Dina fell. Thaddeus retired to become the patron of later investigators.
+
+## The Haunting
+### Locale: Boston, Massachusetts, February 1919
+### Investigators:
+- Detective Mulligan, Boston Police Detective
+- Donald Key, Museum Curator
+- Rosa Shapiro, Nurse
+
+The investigators were enlisted by Thaddeus McHenry to investigate a supposedly haunted house that he had inherited.
+
+In the investigation they learned it was a part of the Chapel of Contemplation and its early owner, Mr. Walter Corbitt, was hidden in an undead state in the basement. Battling his animations they destroyed his physical form.
+
+They enlisted Rev Vittorio Gregori to try exorcising the house prior to their confrontation - it didn't quite work, but it did give Rosa an opportunity to learn what had befallen Dina.
